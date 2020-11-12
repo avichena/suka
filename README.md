@@ -1,0 +1,2 @@
+# suka
+Orang semua suka
